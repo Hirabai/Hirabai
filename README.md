@@ -1,2 +1,2 @@
 ### Welcome
-#### This place is under construction, but you're welcome to give a follow and check back on the progress
+#### Make yourself at home, it's gonna be a long wait
